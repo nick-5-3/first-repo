@@ -7,9 +7,11 @@ Ok i like to skateboard
 
 I like:
 
--smashing
--doggy
--missionary
+-rockets
+-planes
+-my girlfriend
+-coding
+-football
 
 Top 5 songs:
 
